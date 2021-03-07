@@ -1,2 +1,2 @@
 # STEMessenger
-Message women* in STEM!
+Message women* in STEM from history!
